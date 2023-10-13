@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-I solve my problems and share it with public. Here are some of the examples https://browser.010pixelcom
+I solve my problems and share it with public. Here are some of the examples https://browser.010pixel.com
 
 ### Support
 
